@@ -1,4 +1,4 @@
 - Hi, I'm PumpkinCraft_
-- 16 y.o. Czech
+- 17 y.o. Czech
 - Java developer and Minecraft Mod Creator
 - Discord: pumpk1ncraft_
